@@ -1,1 +1,1 @@
-# RiseIn-Blockchain-Akademi
+# RiseIn Blockchain Akademi
